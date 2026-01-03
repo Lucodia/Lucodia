@@ -1,5 +1,7 @@
 # 念羽: 死神的宽慰
 
+![Lucodia](https://raw.githubusercontent.com/Lucodia/Lucodia/refs/heads/main/IMG_20260103_232952.jpg)
+
 一个作恶多端的罪犯死去了。
 他倒下的地方没有雷声，也没有审判的号角。只有夜色像一块缓慢展开的布，将他的影子轻轻覆盖。血迹尚温，心跳已止。
 
